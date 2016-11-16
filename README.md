@@ -198,3 +198,18 @@ http://v.itcast.cn/course/13.html?1611trkqqun
 
 【毕设项目】跨平台实现中国象棋开发
  http://v.itcast.cn/course/128.html?1611trkqqun
+
+
+
+2016年前端开发Angular.JS从入门到上手企业开发视频
+
+链接: https://pan.baidu.com/s/1dF2vBzV 密码: 3hbk
+
+2016年最新前端技术react视频入门
+链接: http://pan.baidu.com/s/1i46by8t 密码: 48tt
+
+2016年CSS实体班同步教程
+链接: https://pan.baidu.com/s/1qXWRbCK 密码: a725
+
+2016年JS视频教程实体班同步教程
+链接: https://pan.baidu.com/s/1jHIkxLG 密码: hpyb
